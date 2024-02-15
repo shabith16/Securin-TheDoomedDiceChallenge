@@ -1,1 +1,1 @@
-# Securin-TheDoomedDiceChallengeSecurin-TheDoomedDiceChallenge
+# Securin-TheDoomedDiceChallenge
